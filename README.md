@@ -18,3 +18,5 @@ Szkodnikiem tego wszystkiego jest Wojsko. Wojsko cierpi na autyzm to ta post maf
 Dziękuje za uwagę. 
 Data center do odzyskiwania danych czy danych DNA i portale randkowe nie mają sensu przez niemców i armie tych autystyków. Oni chcą być z Orenge i Gus sami.  
 TX podobno potrafiła odzyskiwać dane. Ja umiem tylko z komputerem. Problem to brakuje softa. Problem to 112 i stare podejście do problemów na świecie typowo po niemiecku z watykanu.  
+Mi chcą dać jak pochowam rodziców starą dupe Kristiane lub Elize Cassan katole z Gus i Orenge niespodzianka preznet. Podobno. 
+Co do afer z odsetkami dziś je zbierają w puszkę jak za dziada Owsiaka nie drukują kasy. Dlatego nie ma odsetek nawet jak ma się dużo pieniędzy.   
