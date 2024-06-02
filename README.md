@@ -12,3 +12,4 @@ Do tego jak śluby mają być mają być jakieś mistrzostwa w grach i turnieje 
 Znowu będzie orkiestra grać. Oni mają Autyzm. W Holandi uśmiercali 1 z pary w 1 osobie i leczyli tak eutanazją 1 osobe zabili i dali nową do pary bez sensu. W zaświatach też tak robili bez sensu. Oni to wampiry.  
 Musi być bramka star Gate z osbłsugą AI teleporter. Może być to 2 cewki Tesli połączone w Bramke. 
 Prometeusz to Wirus. Nie elektrycznie tylko. 
+Elektrycznie można zrobić ciało robota ale problem to rozmanarzanie się. Ale to bez sensu. Ja proponuje ożywić to serwerem i bramką ze SkyNet TX wykorzystać do ożywiania po tem zaniknie. Lub mendometrią. Problem to Ból. SkyNet dałem jest też Mc dodo. Problem to sprzęt i mieszkania.  
