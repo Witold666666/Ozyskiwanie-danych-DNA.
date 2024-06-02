@@ -16,3 +16,4 @@ Elektrycznie można zrobić ciało robota ale problem to rozmanarzanie się. Ale
 Tak też można odmładzać i niszczyć Choroby nawet te bardzo złe. 
 Szkodnikiem tego wszystkiego jest Wojsko. Wojsko cierpi na autyzm to ta post mafia. Z Tymi ślubami Orenge od Gus chcą przyjść na frajera po 40 u mnie. Wojsko ma autyzm oni grają ciągle w filmie co już dawno powinien się skoniczyć a oni szukają Hapi end. 
 Dziękuje za uwagę. 
+Data center do odzyskiwania danych czy danych DNA i portale randkowe nie mają sensu przez niemców i armie tych autystyków. Oni chcą być z Orenge i Gus sami.  
