@@ -9,3 +9,4 @@ Ja mam tylko 2 osoby do wyjęcia z rzeczami z Vois nie mam tylko oprogramowania 
 Co do mnie mi chcą dać do ślubu Kristiany na nowo. 
 Ludzią chcą dać na nowo też coś od nowa do pary bez sensu. 
 Do tego jak śluby mają być mają być jakieś mistrzostwa w grach i turnieje dopiero ślub. 
+Znowu będzie orkiestra grać. Oni mają Autyzm. W Holandi uśmiercali 1 z pary w 1 osobie i leczyli tak eutanazją 1 osobe zabili i dali nową do pary bez sensu. W zaświatach też tak robili bez sensu. Oni to wampiry.  
