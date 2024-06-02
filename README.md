@@ -5,3 +5,7 @@ Do tego głośnika jest potrzebna duża aplikacja AI do wyjęcia zmarłego z rze
 Głośniki są ale nie ma aplikacji. 
 Śluby na nowo będą bez sensu jak wszyscy wiedzą o dozyskiwaniu danych i są już te czasy. Problem to kasa i dodruk kasy. To co chcą dać pewnym osobą to szczęście to Alimenty Gus Orenge mi dadzą Kristiane. Problem to ryzunek poprzedniej kobiety. 
 Te śluby na nowo to politycy wszystko to Pis po tem sprawa i alimenty. 
+Ja mam tylko 2 osoby do wyjęcia z rzeczami z Vois nie mam tylko oprogramowania statystycznego do teleportacji kwantowej.
+Co do mnie mi chcą dać do ślubu Kristiany na nowo. 
+Ludzią chcą dać na nowo też coś od nowa do pary bez sensu. 
+Do tego jak śluby mają być mają być jakieś mistrzostwa w grach i turnieje dopiero ślub. 
