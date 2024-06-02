@@ -14,5 +14,5 @@ Musi być bramka star Gate z osbłsugą AI teleporter. Może być to 2 cewki Tes
 Prometeusz to Wirus. Nie elektrycznie tylko. 
 Elektrycznie można zrobić ciało robota ale problem to rozmanarzanie się. Ale to bez sensu. Ja proponuje ożywić to serwerem i bramką ze SkyNet TX wykorzystać do ożywiania po tem zaniknie. Lub mendometrią. Problem to Ból. SkyNet dałem jest też Mc dodo. Problem to sprzęt i mieszkania.  
 Tak też można odmładzać i niszczyć Choroby nawet te bardzo złe. 
-Szkodnikiem tego wszystkiego jest Wojsko.
+Szkodnikiem tego wszystkiego jest Wojsko. Wojsko cierpi na autyzm to ta post mafia. 
 Dziękuje za uwagę. 
